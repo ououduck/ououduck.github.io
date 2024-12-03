@@ -1,1 +1,1 @@
-# ououduck.github.io
+# by duck
